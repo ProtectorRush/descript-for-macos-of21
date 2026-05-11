@@ -1,4 +1,4 @@
-
+Descript for macOS instant Script: auto-tune & text-animation is the best Descript for macOS script, featuring auto-tune and text-animation. Safe, efficient, and optimized for
 
 
 
